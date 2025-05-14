@@ -1,4 +1,4 @@
-[10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
 
 [【中医】中国中医秘方大全·上.pdf](https://url03.ctfile.com/f/64369603-1504135420-210bcc?p=8078)
 

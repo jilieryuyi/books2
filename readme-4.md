@@ -1,4 +1,4 @@
-[10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
 
 [【中医】197-脚气治法总要.txt](https://url03.ctfile.com/f/64369603-1504067845-edf598?p=8078)
 

@@ -1,4 +1,4 @@
-[10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
 
 [【中医】冷廬医话(第六卷).pdf](https://url03.ctfile.com/f/64369603-1504104643-2d9498?p=8078)
 

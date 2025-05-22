@@ -1,4 +1,4 @@
-[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://voluble-croquembouche-d321dc.netlify.app/)
 
 [应用程序性能测试的艺术_（新）莫里纽克斯（Molyneaux,I.）__5476431_4f584423379b1cd65e84153b5d80878a.azw3](https://url03.ctfile.com/f/64369603-1505141266-c23318?p=8078)
 

@@ -1,4 +1,4 @@
-[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://voluble-croquembouche-d321dc.netlify.app/)
 
 [34、追风筝的人_[美] 卡勒德·胡赛尼_.epub](https://url03.ctfile.com/f/64369603-1506561157-facb90?p=8078)
 

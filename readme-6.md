@@ -1,4 +1,4 @@
-[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://voluble-croquembouche-d321dc.netlify.app/)
 
 [黃昏之岸．曉之天_小野不由美_尖端_5342270_bcf2aec2ff6e03e6f5195dd7572e6ba7.epub](https://url03.ctfile.com/f/64369603-1504787011-440810?p=8078)
 

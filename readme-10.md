@@ -1,4 +1,4 @@
-[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://voluble-croquembouche-d321dc.netlify.app/)
 
 [1035、潮骚-三岛由纪夫_ 三岛由纪夫_.mobi](https://url03.ctfile.com/f/64369603-1506578017-2661c7?p=8078)
 

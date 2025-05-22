@@ -1,4 +1,4 @@
-[【全集】10万+电子书，持续更新](https://jilieryuyi.github.io/books2/)
+[【全集】10万+电子书，持续更新](https://voluble-croquembouche-d321dc.netlify.app/)
 
 [Microsoft Word - chp1.doc_Administrator__5498972_272de0803c7afccb4c611347265eaee4.pdf](https://url03.ctfile.com/f/64369603-1505400316-b9db2a?p=8078)
 
